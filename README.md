@@ -1,0 +1,1 @@
+![Önizleme](/img/Screenshot_1.png)
